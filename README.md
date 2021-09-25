@@ -1,1 +1,1 @@
-# Analysis-of-Ashoka-University-Confession-page
+# Analysis-of-Confession-page
